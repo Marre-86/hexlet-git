@@ -1,0 +1,1 @@
+Putin is an asshole
